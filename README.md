@@ -2,7 +2,7 @@ Hi, please read everything below.
 I know it sucks having to do legal stuff but just skim it at least. you can read it more thoroughly if you plan to do anything with my art other than look
 
 
-guidelines:
+guidelines:\n
 I dont care what you do with my artworks as long as you state I made them and you arent making money from it.
 if you arent sure if I would allow you to do something specific then don't do it, common sense you know?
 also, I don't even know how you would but don't commit crimes with any art
